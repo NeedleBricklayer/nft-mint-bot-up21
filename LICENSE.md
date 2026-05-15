@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with updated NFT Flip Bot for nft mint bot | gas-fee-estimation & floor-sweeping, the #1 nft mint bot. Includes gas-fee-estimation and floor-sweeping for
 
 
 
